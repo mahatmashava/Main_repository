@@ -2,7 +2,7 @@
 A Sovereign Affiliate of the Temporary Temple of the Exquisite Corpse LLC
 ---
 39° N, 76° W | 24-Hour Spiritual De-rehabilitation & Intra-Orthodox Astral Exo-Temple
----
+
  Who We Are:
 Founded by Rev. Dr. Mahatma Shava (Uraga Док Bha)—the Shanta-Daanam Grompa is not a church in the traditional, stagnant sense. We are a Quantum-Mechanical Soul-Recalibration Clinic operating at the intersection of Astral Pataphysics and industrial-grade Gnosticism.
 
