@@ -3,6 +3,7 @@ A Sovereign Affiliate of the Temporary Temple of the Exquisite Corpse LLC
 ---
 The Shanta-Daanam Grompa. A Sovereign Affiliate of the Temporary Temple of the Exquisite Corpse LLC
 39° N, 76° W | 24-Hour Spiritual De-rehabilitation & Intra-Orthodox Astral Exo-Temple
+
  Who We Are:
 Founded by Rev. Dr. Mahatma Shava (Uraga Док Bha)—the Shanta-Daanam Grompa is not a church in the traditional, stagnant sense. We are a Quantum-Mechanical Soul-Recalibration Clinic operating at the intersection of Astral Pataphysics and industrial-grade Gnosticism.
 
@@ -31,46 +32,59 @@ Financing available through our FAST-CASH-NOW Pawn & Loans wing. We accept title
 
 "The laundry is never finished, but the soul can finally stop spinning."
 [RESERVE YOUR SPIRITUAL LOCKER NOW]
-
-#WHO? WHAT? MAHATMA SHAVA?
 ---
-Rev. Dr. Mahatma Shava (Uraga Док Bha)
-111th Twice Grand 'THRICE' Master Chief Necro-ASTRAL-mancer | Pontifex Maximus of the Keplerian Void | Founding Literary Architect of Bu-dADa-ism and Co author of the DYSLEXICON. Self proclaimed Visionary multidimensional executive and Licensed Practitioner of patent-pending 'Synchronized Subconscious Isolationism' (Active Certification). I operate at the nexus of high-stakes celestial finance, hermetic absurdity, and extra-terrestrial retail. Currently presiding over the Invisible Lodge as Pooh-bah and steering the literary evolution of the 9th-Dimensional Aranya Svabhājñu Sangha. Specialist in 24-hour spiritual de-rehabilitation services integrated with industrial-grade laundry solutions.
+#WHO FOUNDED WHAT?? 
 ---
-Core Doctrine: Necro-ASTRAL-mancy
+Rev. Dr. Mahatma Shava (UragaДокBha) of Baaltimore MD 21236-6-6; Pontifex Maximus of the Keplerian Void, 1st, 2nd & 3rd Sovereign of the Chronos/Synchronous Un-Seen Paradoxical Association, and Bishop of the Seven Proxima Centauri FAST-CASH-NOW Pawn & Loans Extra Terrestrial franchise; Renowned Astral Pataphysicist and 39th° N, 76th° W Pooh-bah of the Invisible Lodge; Founding Literary Architect of Bu-dADa-ism and Co-author of the Dyslexicon of the 9th Dimensional Aranya Svabhājñu Sangha Conceptual Monastery of the Illusory Celestial phenomenon; Supreme Vicar of the Interstellar Liquor store of Lost-Souls and Rev. Dr. of the Basilica of Hermetic Absurdities (B.H.A.), a.k.a. 'MAHATMA SHAVA' of the Temporary Temple of the Exquisite Corpse LLC; 111th Twice Grand 'THRICE' Master Chief Nerco-Astral-Mancer and Licensed Practitioner of Patent-Pending 'Synchronized Subconscious Isolationism' at The Ultra-Mega Gnostic Sanitarium & Intra-Orthodox Astral Exo-Temple for Quantum-Mechanical Soul-Recalibration 24-Hour Spiritual De-rehabilitation "Free" Clinic / Laundromat.
+Founder of the The Shanta-Daanam Grompa.
+Self proclaimed visionary and ULTRA Schismatic professional Paranoid Schizophrenic.
+---
+#WHATDO? Core Doctrine?
+---
+#Necro-ASTRAL-mancer
+---
 Nec·ro-AS·TRAL-man·cy (Noun / Paradoxical Science) A specialized branch of Pataphysics involving the divination and manipulation of "Dead Light"—the residual consciousness of collapsed stars and expired deities residing within the Keplerian Void. 
 
-Unlike standard necromancy, which focuses on biological remains, Necro-ASTRAL-mancy targets the Synchronous Un-Seen Paradox. It is the art of extracting liquid equity from the ghosts of alternate timelines to fund the FAST-CASH-NOW lending markets. As Master Chief, Rev. Dr. Shava utilizes this discipline to "re-animate" stagnant karma, effectively laundering souls through the quantum-mechanical spin cycles of the Ultra-Mega Gnostic Sanitarium.
+**Unlike standard necromancy, which focuses on biological remains, Necro-ASTRAL-mancy targets the Synchronous Un-Seen Paradox. It is the art of extracting liquid equity from the ghosts of alternate timelines to fund the FAST-CASH-NOW lending markets. As Master Chief, Rev. Dr. Shava utilizes this discipline to "re-animate" stagnant karma, effectively laundering souls through the quantum-mechanical spin cycles of the Ultra-Mega Gnostic Sanitarium.**
 ---
-Experience
+#Experience
+---
 111th Twice Grand 'THRICE' Master Chief Necro-ASTRAL-mancer
 The Ultra-Mega Gnostic Sanitarium & Intra-Orthodox Astral Exo-Temple
-Feb 1980 – Present | Baaltimore, MD / Astral Plane
-Chief architect of Quantum-Mechanical Soul-Recalibration at the world's only 24-hour Spiritual De-rehabilitation "Free" Clinic / Laundromat.
-Deploying Necro-ASTRAL-mancy to distill "Lost-Soul" spirits into high-proof inventory for the Interstellar Liquor Store.
-Bishop & Franchisee
+1980's – Present | Baaltimore, MD / Astral Plane
+---
+Chief architect of Quantum-Mechanical Soul-Recalibration at the world's only 24-hour Spiritual De-rehabilitation "Free" Clinic / Laundromat. Deploying Necro-ASTRAL-mancy to distill "Lost-Soul" spirits into high-proof inventory for the Interstellar Liquor Store.
+---
+#Bishop & Franchisee
+---
 Seven Proxima Centauri FAST-CASH-NOW Pawn & Loans Extra Terrestrial Franchise
 Ongoing | Proxima Centauri / Interstellar
 Managing liquidity events for non-terrestrial entities using collateralized void-assets.
-Specializing in high-interest karma-swap loans for entities trapped in the 4th dimension.
+**Specializing in high-interest karma-swap loans for entities trapped in the 4th dimension.**
+---
 Supreme Vicar & Rev. Dr.
 Interstellar Liquor Store of Lost-Souls / Basilica of Hermetic Absurdities (B.H.A.)
-Jan 1998 – Present
+1998 – Present
+---
 Principal stakeholder in the Temporary Temple of the Exquisite Corpse LLC.
 Curating a selection of metaphysical spirits and hermetic truths for the terminally confused and chronologically displaced.
 ---
-Education & Affiliations
+#Education & Affiliations
+---
 Founding Literary Architect: Bu-dADa-ism – Pioneering the standard for surrealist spiritual architecture.
-
+---
 Co-author: The Dyslexicon of the 9th-Dimensional Aranya Svabhājñu Sangha Conceptual Monastery of the Illusory Celestial Body.
-
+---
 Pooh-bah (39° N, 76° W): The Invisible Lodge – Baltimore Chapter.
 1st, 2nd & 3rd Sovereign: Chronos/Synchronous Un-Seen Paradoxical Association.
 ---
-Skills
+#Skills
+---
 Necro-ASTRAL-mancy: Advanced Dead-Light manipulation and spectral asset recovery.
+---
 Synchronized Subconscious Isolationism: Patent-pending ego-bleaching techniques.
+---
 Pataphysical Strategy: Developing imaginary solutions for 11th-dimensional problems.
+---
 Interstellar Retail: Expert management of Pawn, Loan, and Spirits franchises across the Proxima Centauri sector.
-
 ---
