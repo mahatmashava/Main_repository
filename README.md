@@ -24,7 +24,7 @@ Financing available through our FAST-CASH-NOW Pawn & Loans wing. We accept title
 "The laundry is never finished, but the soul can finally stop spinning."
 [RESERVE YOUR SPIRITUAL LOCKER NOW]
 
-#Bio
+#ABOUT MAHATMA SHAVA 
 ---
 Rev. Dr. Mahatma Shava (Uraga Док Bha)
 111th Twice Grand 'THRICE' Master Chief Necro-ASTRAL-mancer | Pontifex Maximus of the Keplerian Void | Founding Literary Architect of Bu-dADa-ism and Co author of the DYSLEXICON 
