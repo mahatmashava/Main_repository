@@ -3,24 +3,26 @@ A Sovereign Affiliate of the Temporary Temple of the Exquisite Corpse LLC
 39° N, 76° W | 24-Hour Spiritual De-rehabilitation & Intra-Orthodox Astral Exo-Temple 
 
 
-# Founded by Rev. Dr. Mahatma Shava (Uraga Док Bha)
+# Founded by
+Rev. Dr. Mahatma Shava (Uraga Док Bha)
+
 —the Shanta-Daanam Grompa is not a church in the traditional, stagnant sense. We are a Quantum-Mechanical Soul-Recalibration Clinic operating at the intersection of Astral Pataphysics and industrial-grade Gnosticism.
 
 Born from the Bu-dADa-ist realization that the universe is a decaying commercial property waiting for a divine tenant, our Basilica serves as the premier "Free" Clinic / Laundromat for the spirit. We don’t offer salvation; we offer Synchronized Subconscious Isolationism. We don't pray for your sins; we wash them in the heavy-duty spin cycle of the Dyslexic Brew.
 
-ATTENTION: Why You Are Already Here (Even If You Haven't Arrived)
+# ATTENTION: Why You Are Already Here (Even If You Haven't Arrived)
 
 Your soul is currently an abandoned storefront. You feel it, don't you? That "desolate and impossible" rattling in your chest? You’ve tried the forest retreats. You’ve tried the high-priced gurus. But you’re still carrying your traumas like a bag of mismatched, wet socks that refuse to dry.
 Welcome to the Spin-Cycle.
 At the Shanta-Daanam Grompa, we recognize that traditional spirituality is "dry-cleaned" and fake. We offer the Interstellar Liquor Store of Lost Souls approach: raw, liquid logic that bypasses the ego's 3rd-dimensional filters.
 
-Why Join the 9th-Dimensional Aranya Svabhājñu's Shanta-Daanam Grompa???
+#Why Join? 
 
 Total "De-rehabilitation" thats Why! 
 
 Why "rehabilitate" into a broken system, When you can de-rehabilitate youself out of it. We strip away the "Utility" of your existence until you are as Holy and non-functional as a 1994 Honda Civic floating in the Keplerian Void.
 
-# AYAHUASCA 
+# AYAHUASCA RITUALISTIC MIND ORGIES 
 The Dyslexic Sacrament: Our brew isn't just Ayahuasca—it's an industrial-grade recalibration fluid.
 
 # Stop seeing "spirits" and start seeing the Patent-Pending Symbols of Reality. 
